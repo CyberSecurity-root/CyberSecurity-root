@@ -1,3 +1,2 @@
 ### Hi there, I'm CyberRoot ✋
-
-https://img.shields.io/badge/CyberRoot-blue
+<img alt="Static Badge" src="https://img.shields.io/badge/CyberRoot-red">
