@@ -1,6 +1,6 @@
 ### Hi there, I'm CyberRoot ✋
-![image]![5c1a0f1c1a0e1e32ce0698f71f217398](https://github.com/user-attachments/assets/3c09720c-e1e8-4464-b661-0eacc87f5a7d)
-()
+![5c1a0f1c1a0e1e32ce0698f71f217398](https://github.com/user-attachments/assets/676f3404-a67a-4cc5-8e73-ee549d57cbee)
+
 <img alt="Static Badge" src="https://img.shields.io/badge/CyberRoot-red">
 
 ***working on***
