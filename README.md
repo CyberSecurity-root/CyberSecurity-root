@@ -1,4 +1,7 @@
 ### Hi there, I'm CyberRoot ✋
+
+### hack4u certified person as an expert in linux systems
+
 ### Actually Working on BlackGhost Doxing tool
 ▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
 ![5c1a0f1c1a0e1e32ce0698f71f217398](https://github.com/user-attachments/assets/676f3404-a67a-4cc5-8e73-ee549d57cbee)
